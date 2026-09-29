@@ -19,4 +19,4 @@
 
 ---
 
-📫 **Connect with me:** [LinkedIn](your-linkedin-url) | [Email](mailto:your-email@example.com)
+📫 **Connect with me:** [LinkedIn](www.linkedin.com/in/rentala-rajhans-b2a25b380) | [Email](mailto:rentalarrajhans@gmail.com)
